@@ -1,2 +1,0 @@
-# huha
-hüseyin, hayri projesileri
